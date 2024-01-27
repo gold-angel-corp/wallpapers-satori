@@ -1,4 +1,4 @@
-# wallpapers-satori
+# Wallpapers SATORI
 Wallpapers  from the game SATORI
 ©2024 Gold Angel Corp.
 
